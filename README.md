@@ -1,2 +1,3 @@
 # looking-back
-looking back for future 
+回头看是为了更好的往前走
+一路虽然跌跌撞撞，却也走了很远
